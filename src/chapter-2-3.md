@@ -1,5 +1,4 @@
-Chapter 2: Understanding Forgiveness: Common Myths about Forgiveness
-====================================================================
+# Common Myths about Forgiveness
 
 Forgiveness is a powerful process that can be transformative for individuals. However, there are several common myths about forgiveness that can hinder the forgiveness process. In this chapter, we will explore and dispel these myths.
 

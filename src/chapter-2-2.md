@@ -1,5 +1,4 @@
-Chapter 2: Understanding Forgiveness: Benefits of Forgiveness
-=============================================================
+# Benefits of Forgiveness
 
 Forgiveness is a powerful tool for letting go of resentment and moving forward with compassion. In this chapter, we will explore the benefits of forgiveness.
 

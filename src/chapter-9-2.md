@@ -1,5 +1,4 @@
-Chapter 9: Measuring Success in Forgiveness: Qualitative and Quantitative Methods for Evaluation
-================================================================================================
+# Qualitative and Quantitative Methods for Evaluation
 
 Forgiveness is a complex process, but it can be measured through qualitative and quantitative methods. In this chapter, we will explore practical guidance for measuring success in forgiveness using both qualitative and quantitative evaluation methods.
 

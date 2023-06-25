@@ -1,5 +1,4 @@
-Chapter 4: Exploring the Process of Forgiveness: Acknowledging Hurt and Pain
-============================================================================
+# Acknowledging Hurt and Pain
 
 Forgiveness is a powerful process that requires individuals to acknowledge their hurt and pain. In this chapter, we will explore the importance of acknowledging hurt and pain in the forgiveness process.
 

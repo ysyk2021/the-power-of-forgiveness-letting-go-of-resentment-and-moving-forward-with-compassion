@@ -1,5 +1,4 @@
-Chapter 6: Applying Forgiveness in Relationships: Forgiving Others
-==================================================================
+# Forgiving Others
 
 Forgiveness is a powerful tool for personal growth and emotional well-being. In this chapter, we will explore practical guidance for applying forgiveness in relationships, specifically when forgiving others.
 

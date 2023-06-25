@@ -1,5 +1,4 @@
-Chapter 3: Differentiating Forgiveness from Reconciliation: Definition of Reconciliation
-========================================================================================
+# Definition of Reconciliation
 
 Reconciliation is the process of restoring a relationship that has been damaged by hurtful actions. It involves both parties acknowledging the hurt and working together to rebuild trust, communication, and intimacy.
 

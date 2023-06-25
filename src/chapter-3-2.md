@@ -1,5 +1,4 @@
-Chapter 3: Differentiating Forgiveness from Reconciliation: Differences between Forgiveness and Reconciliation
-==============================================================================================================
+# Differences between Forgiveness and Reconciliation
 
 Forgiveness and reconciliation are often used interchangeably, but they are two distinct processes. In this chapter, we will explore the differences between forgiveness and reconciliation.
 

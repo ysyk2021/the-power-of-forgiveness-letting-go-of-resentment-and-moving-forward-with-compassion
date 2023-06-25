@@ -1,5 +1,4 @@
-Chapter 8: Incorporating Forgiveness into Daily Life: Practicing Gratitude and Mindfulness
-==========================================================================================
+# Practicing Gratitude and Mindfulness
 
 Incorporating forgiveness into daily life requires ongoing effort and practice. Practicing gratitude and mindfulness are two powerful techniques for incorporating forgiveness into daily life, allowing individuals to let go of resentment and move forward with compassion.
 

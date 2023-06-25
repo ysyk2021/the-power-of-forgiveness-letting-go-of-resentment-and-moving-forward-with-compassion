@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Obstacles to Forgiveness: Common Obstacles to Forgiveness
-===============================================================================
+# Common Obstacles to Forgiveness
 
 Forgiveness is a powerful process that can lead to improved emotional well-being and stronger relationships. However, there are common obstacles that can make forgiveness challenging. In this chapter, we will explore some of the most common obstacles to forgiveness.
 

@@ -1,5 +1,4 @@
-Chapter 3: Differentiating Forgiveness from Reconciliation: When Reconciliation is Appropriate
-==============================================================================================
+# When Reconciliation is Appropriate
 
 In the previous chapter, we explored the differences between forgiveness and reconciliation. While forgiveness can be achieved unilaterally, reconciliation requires mutual effort to rebuild a damaged relationship. In this chapter, we will discuss when reconciliation may be appropriate.
 

@@ -1,5 +1,4 @@
-Chapter 9: Measuring Success in Forgiveness: Key Performance Indicators (KPIs) for Measuring Success
-====================================================================================================
+# Key Performance Indicators (KPIs) for Measuring Success
 
 Forgiveness is a process that requires effort and dedication, but how can we measure success in forgiveness? In this chapter, we will explore key performance indicators (KPIs) for measuring success in forgiveness.
 

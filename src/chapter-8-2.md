@@ -1,5 +1,4 @@
-Chapter 8: Incorporating Forgiveness into Daily Life: Building Strong Support Networks
-======================================================================================
+# Building Strong Support Networks
 
 Incorporating forgiveness into daily life can be a challenging process, but it becomes easier with the support of others. Building strong support networks is an essential aspect of incorporating forgiveness into daily life, allowing individuals to receive the encouragement and guidance they need to let go of resentment and move forward with compassion.
 
