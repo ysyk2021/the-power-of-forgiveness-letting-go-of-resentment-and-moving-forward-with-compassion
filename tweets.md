@@ -8,5 +8,3 @@
 8. Holding onto grudges and resentment can cause physical and emotional harm. Heal your body and mind by embracing forgiveness with "The Power of Forgiveness". #MindBodyConnection #Healing
 9. Forgiveness is a powerful act of self-love. Discover the benefits of letting go of grudges and resentment in "The Power of Forgiveness" book. #SelfLove #Compassion
 10. Life is too short to carry the weight of anger and bitterness. Find freedom and peace through forgiveness with "The Power of Forgiveness" book. #Freedom #Peace
-
-
