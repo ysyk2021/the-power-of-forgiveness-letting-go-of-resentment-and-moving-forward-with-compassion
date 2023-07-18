@@ -8,5 +8,4 @@ This book explores the psychology behind forgiveness, delving into the science o
 
 Whether you are struggling with past hurts or simply want to improve your relationships, "The Power of Forgiveness" offers a valuable resource for anyone seeking to find freedom and peace through forgiveness. So, if you're ready to let go of resentment and move forward with compassion, this book is for you.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
