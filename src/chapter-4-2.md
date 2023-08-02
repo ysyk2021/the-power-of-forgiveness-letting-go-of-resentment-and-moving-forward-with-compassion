@@ -1,4 +1,4 @@
-Chapter: Taking Responsibility for Your Own Emotions
+Taking Responsibility for Your Own Emotions
 ====================================================
 
 In this chapter, we will explore the empowering practice of taking responsibility for our own emotions. By recognizing that our emotions are within our control, we can cultivate a greater sense of emotional well-being, enhance our relationships, and find inner peace. This chapter will delve into strategies for self-awareness, emotional regulation, and fostering positive emotional states.

@@ -1,4 +1,4 @@
-Chapter: Building Strong Support Networks
+Building Strong Support Networks
 =========================================
 
 In this chapter, we will explore the importance of building strong support networks when embarking on the journey of forgiveness and reconciliation. We will discuss how supportive relationships and communities can provide encouragement, guidance, and a sense of belonging during challenging times.

@@ -1,4 +1,4 @@
-Chapter: Qualitative and Quantitative Methods for Evaluation
+Qualitative and Quantitative Methods for Evaluation
 ============================================================
 
 In this chapter, we will explore different methods for evaluating the process of forgiveness and reconciliation. We will discuss the benefits and limitations of both qualitative and quantitative approaches to assessment, highlighting how they can be used in tandem to provide a comprehensive understanding of progress and outcomes.

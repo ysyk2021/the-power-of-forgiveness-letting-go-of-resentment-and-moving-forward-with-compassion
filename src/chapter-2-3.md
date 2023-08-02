@@ -1,4 +1,4 @@
-Chapter: Common Myths about Forgiveness
+Common Myths about Forgiveness
 =======================================
 
 In this chapter, we will debunk common myths and misconceptions surrounding forgiveness. Understanding these myths is essential for embracing forgiveness fully and experiencing its transformative power. Let us explore some of the most prevalent misconceptions that may hinder our ability to let go of resentment and move forward with compassion.

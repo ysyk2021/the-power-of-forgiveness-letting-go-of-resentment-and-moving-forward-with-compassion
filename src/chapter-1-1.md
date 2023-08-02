@@ -1,4 +1,4 @@
-Chapter: Importance of Forgiveness
+Importance of Forgiveness
 ==================================
 
 Forgiveness is a transformative and powerful act that holds immense importance in our lives. In this chapter, we will explore the significance of forgiveness and how it can positively impact our well-being, relationships, and overall happiness.

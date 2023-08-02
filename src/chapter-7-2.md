@@ -1,4 +1,4 @@
-Chapter: Moving Past Grief and Trauma
+Moving Past Grief and Trauma
 =====================================
 
 In this chapter, we will explore the process of moving past grief and trauma on the path to forgiveness. Grief and trauma can deeply affect our ability to forgive and let go of resentment. However, with compassion and healing practices, we can find a way to move forward and cultivate forgiveness in the midst of pain.

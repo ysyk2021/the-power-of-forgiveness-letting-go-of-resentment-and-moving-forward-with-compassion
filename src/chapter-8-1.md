@@ -1,4 +1,4 @@
-Chapter: Practicing Gratitude and Mindfulness
+Practicing Gratitude and Mindfulness
 =============================================
 
 In this chapter, we will explore the powerful practices of gratitude and mindfulness and their role in the process of forgiveness. We will discuss how cultivating gratitude and mindfulness can help individuals let go of resentment, cultivate compassion, and move forward towards a more fulfilling and peaceful life. Through the use of gratitude journaling, mindfulness exercises, and daily practices, readers will learn practical techniques to integrate gratitude and mindfulness into their lives.

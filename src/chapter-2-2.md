@@ -1,4 +1,4 @@
-Chapter: Benefits of Forgiveness
+Benefits of Forgiveness
 ================================
 
 In this chapter, we will explore the numerous benefits of forgiveness. Understanding the positive impact that forgiveness can have on our lives motivates us to embark on a journey of letting go of resentment and moving forward with compassion. Let's delve into the transformative effects that forgiveness can bring.

@@ -1,4 +1,4 @@
-Chapter: Definition of Forgiveness
+Definition of Forgiveness
 ==================================
 
 In this chapter, we will explore the concept and definition of forgiveness. Understanding what forgiveness truly means is crucial to embarking on a journey of letting go of resentment and moving forward with compassion. We will delve into the various dimensions of forgiveness and its transformative power in our lives.

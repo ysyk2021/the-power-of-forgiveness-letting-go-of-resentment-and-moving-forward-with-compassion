@@ -1,4 +1,4 @@
-Chapter: Forgiving Yourself
+Forgiving Yourself
 ===========================
 
 In this chapter, we will explore the importance of forgiving yourself and the transformative power it holds. Self-forgiveness is a profound act of compassion and healing that allows us to let go of guilt, shame, and self-blame. By embracing self-forgiveness, we can free ourselves from the weight of past mistakes and move forward with self-compassion and self-love.

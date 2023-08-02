@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of Forgiveness](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding Forgiveness](chapter-2.md)
   - [Definition of Forgiveness](chapter-2-1.md)
   - [Benefits of Forgiveness](chapter-2-2.md)
