@@ -46,4 +46,4 @@ Rebuilding trust is a separate process that takes time and consistent effort. Fo
 Conclusion
 ----------
 
-By dispelling these common myths about forgiveness, we can gain a clearer understanding of what forgiveness truly entails. We recognize that forgiveness does not equate to forgetting, excusing harmful actions, weakness, instantaneously, reconciliation, erasing consequences, neglecting self-care, or immediate trust rebuilding. Understanding these misconceptions enables us to embrace forgiveness more fully and experience its transformative power. In the next chapters, we will delve into practical strategies for cultivating forgiveness in our lives and reaping its immense benefits.
+By dispelling these common myths about forgiveness, we can gain a clearer understanding of what forgiveness truly entails. We recognize that forgiveness does not equate to forgetting, excusing harmful actions, weakness, instantaneously, reconciliation, erasing consequences, neglecting self-care, or immediate trust rebuilding. Understanding these misconceptions enables us to embrace forgiveness more fully and experience its transformative power.

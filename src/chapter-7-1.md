@@ -51,4 +51,4 @@ Self-forgiveness enables us to rebuild trust in ourselves. When we forgive ourse
 Conclusion
 ----------
 
-Forgiving ourselves is an empowering and transformative act of self-compassion. It liberates us from the burdens of self-blame, guilt, and shame, allowing us to embrace self-growth, healing, and personal fulfillment. By cultivating self-forgiveness, we create a foundation of self-love and acceptance that propels us towards a brighter and more compassionate future. In the next chapters, we will explore practical strategies for practicing self-forgiveness and nurturing a deep sense of self-compassion.
+Forgiving ourselves is an empowering and transformative act of self-compassion. It liberates us from the burdens of self-blame, guilt, and shame, allowing us to embrace self-growth, healing, and personal fulfillment. By cultivating self-forgiveness, we create a foundation of self-love and acceptance that propels us towards a brighter and more compassionate future.

@@ -57,4 +57,4 @@ Establish clear boundaries for the conversation to ensure that everyone feels sa
 Conclusion
 ----------
 
-Navigating difficult conversations is an essential skill on the path towards forgiveness. By cultivating empathy, actively listening, using "I" statements, staying calm and respectful, seeking common ground, practicing reflective summaries, pausing and reflecting, and striving for mutual understanding, we can engage in productive and healing dialogues. Remember, difficult conversations require patience, understanding, and a commitment to personal growth. In the next chapter, we will explore the transformative power of compassion and its role in the forgiveness process.
+Navigating difficult conversations is an essential skill on the path towards forgiveness. By cultivating empathy, actively listening, using "I" statements, staying calm and respectful, seeking common ground, practicing reflective summaries, pausing and reflecting, and striving for mutual understanding, we can engage in productive and healing dialogues. Remember, difficult conversations require patience, understanding, and a commitment to personal growth.
