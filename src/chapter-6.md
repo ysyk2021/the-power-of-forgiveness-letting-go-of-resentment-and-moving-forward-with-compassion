@@ -3,17 +3,17 @@ Chapter 6: Applying Forgiveness in Relationships
 
 Forgiveness can be a powerful tool for building and maintaining healthy relationships. In this chapter, we will explore practical guidance for applying forgiveness in relationships.
 
-Subchapter 1: Forgiving Others
+Forgiving Others
 ------------------------------
 
 Forgiving others is an essential aspect of applying forgiveness in relationships. This involves releasing negative emotions associated with past harm and embracing empathy and compassion towards the other person. By forgiving others, individuals can promote greater emotional regulation and well-being in their relationships.
 
-Subchapter 2: Seeking Forgiveness from Others
+Seeking Forgiveness from Others
 ---------------------------------------------
 
 Seeking forgiveness from others is also important when applying forgiveness in relationships. This involves taking responsibility for one's actions and expressing remorse for any harm caused. By seeking forgiveness, individuals can promote greater understanding and trust in their relationships.
 
-Subchapter 3: Navigating Difficult Conversations
+Navigating Difficult Conversations
 ------------------------------------------------
 
 Navigating difficult conversations is another key aspect of applying forgiveness in relationships. This involves engaging in open and honest communication, listening actively to the other person, and expressing oneself clearly and respectfully. By navigating difficult conversations effectively, individuals can build stronger and more meaningful relationships.

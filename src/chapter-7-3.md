@@ -53,4 +53,4 @@ Seeking Professional Help
 
 Sometimes, seeking professional help is necessary for enhancing mental health and well-being. If you find that your struggles with forgiveness, resentment, or overall mental well-being are persistent or significantly impacting your daily life, consider reaching out to a mental health professional. Therapists, counselors, or psychologists can offer valuable guidance, tools, and support tailored to your unique needs.
 
-It's important to remember that prioritizing mental health and well-being is an ongoing process. By practicing self-care, adopting positive thinking, managing stress, and seeking professional help when needed, you can create a solid foundation for forgiveness and cultivate a healthy mindset. In the subsequent chapters, we will delve deeper into techniques for practicing forgiveness and nurturing a compassionate heart.
+It's important to remember that prioritizing mental health and well-being is an ongoing process. By practicing self-care, adopting positive thinking, managing stress, and seeking professional help when needed, you can create a solid foundation for forgiveness and cultivate a healthy mindset.

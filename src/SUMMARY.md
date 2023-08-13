@@ -33,6 +33,5 @@
   - [Key Performance Indicators (KPIs) for Measuring Success](chapter-9-1.md)
   - [Qualitative and Quantitative Methods for Evaluation](chapter-9-2.md)
 - [Chapter 10: Case Studies of Successful Forgiveness](chapter-10.md)
-  - [Real-life Examples of Individuals who have Successfully Practiced Forgiveness in their Lives](chapter-10-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

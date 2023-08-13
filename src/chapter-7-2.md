@@ -61,4 +61,4 @@ Moving past grief and trauma involves finding meaning and growth in our experien
 Conclusion
 ----------
 
-Moving past grief and trauma on the path to forgiveness is a deeply personal and transformative journey. By acknowledging our emotions, seeking support, practicing self-care, and embracing forgiveness, we can heal and find solace amidst pain. The strategies outlined in this chapter provide guidance and tools to aid us in navigating the complexities of grief and trauma as we cultivate forgiveness and compassion in our lives. In the subsequent chapters, we will delve deeper into techniques for practicing forgiveness and nurturing a compassionate heart.
+Moving past grief and trauma on the path to forgiveness is a deeply personal and transformative journey. By acknowledging our emotions, seeking support, practicing self-care, and embracing forgiveness, we can heal and find solace amidst pain. The strategies outlined in this chapter provide guidance and tools to aid us in navigating the complexities of grief and trauma as we cultivate forgiveness and compassion in our lives.

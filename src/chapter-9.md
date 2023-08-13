@@ -3,12 +3,12 @@ Chapter 9: Measuring Success in Forgiveness
 
 Forgiveness is a complex process and measuring success can be challenging. In this chapter, we will explore practical guidance for measuring success in forgiveness.
 
-Subchapter 1: Key Performance Indicators (KPIs) for Measuring Success
+Key Performance Indicators (KPIs) for Measuring Success
 ---------------------------------------------------------------------
 
 Key performance indicators (KPIs) are measurable goals that can help individuals evaluate their progress in the forgiveness process. Some examples of KPIs include a reduction in negative emotions, increased empathy and compassion, improved relationships, and greater inner peace. By setting and tracking these KPIs, individuals can measure their progress in the forgiveness process and stay motivated towards achieving their goals.
 
-Subchapter 2: Qualitative and Quantitative Methods for Evaluation
+Qualitative and Quantitative Methods for Evaluation
 -----------------------------------------------------------------
 
 Qualitative evaluation involves assessing subjective experiences of individuals who have undergone the forgiveness process. This may involve conducting interviews or focus groups to understand the individual's experience of forgiveness, including their emotional state, motivations, and challenges encountered during the process.

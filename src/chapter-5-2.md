@@ -56,4 +56,4 @@ On the journey to forgiveness, celebrating progress and milestones is essential 
 Conclusion
 ----------
 
-Overcoming challenges on the path to forgiveness requires intention, self-awareness, and perseverance. By cultivating self-awareness, seeking support, practicing self-compassion, and reframing perspectives, we can navigate through difficulties and foster a greater sense of healing and compassion. The strategies outlined in this chapter serve as valuable tools to guide us on our journey towards letting go of resentment and moving forward with compassion. In the subsequent chapters, we will delve deeper into specific techniques for practicing forgiveness and nurturing a compassionate heart.
+Overcoming challenges on the path to forgiveness requires intention, self-awareness, and perseverance. By cultivating self-awareness, seeking support, practicing self-compassion, and reframing perspectives, we can navigate through difficulties and foster a greater sense of healing and compassion. The strategies outlined in this chapter serve as valuable tools to guide us on our journey towards letting go of resentment and moving forward with compassion.
