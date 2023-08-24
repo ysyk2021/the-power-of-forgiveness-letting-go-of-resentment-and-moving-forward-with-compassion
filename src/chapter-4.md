@@ -1,5 +1,3 @@
-Chapter 4: Exploring the Process of Forgiveness
-===============================================
 
 Forgiveness is a complex process that requires individuals to navigate their own emotions while also showing empathy and compassion towards others. In this chapter, we will explore the different aspects of the forgiveness process.
 

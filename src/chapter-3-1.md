@@ -1,5 +1,3 @@
-Definition of Reconciliation
-=====================================
 
 In this chapter, we will explore the concept of reconciliation and its significance in the process of healing relationships. By understanding the definition and scope of reconciliation, we can grasp the transformative power it holds and its role in fostering understanding and growth.
 

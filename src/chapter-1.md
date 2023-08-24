@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Forgiveness is a transformative process that can lead to greater emotional well-being and stronger relationships. In this chapter, we will explore the importance of forgiveness and provide an overview of the book.
 

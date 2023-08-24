@@ -1,4 +1,3 @@
-# Recap of Key Points
 
 In this book, we have explored the transformative power of forgiveness. We have discussed its definition, benefits, and common myths. We have differentiated forgiveness from reconciliation, explored roadblocks to forgiveness, and provided practical strategies for cultivating self-compassion. We have also discussed how to apply forgiveness in relationships, both in forgiving others and seeking forgiveness from them.
 

@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Forgiveness
-==============================================
 
 Forgiveness is a complex process that can be challenging to navigate. In this chapter, we will explore common obstacles to forgiveness and strategies for overcoming these challenges.
 

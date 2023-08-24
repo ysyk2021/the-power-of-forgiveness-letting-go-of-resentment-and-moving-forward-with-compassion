@@ -1,5 +1,3 @@
-Common Obstacles to Forgiveness
-========================================
 
 In this chapter, we will explore some of the common obstacles that can hinder the process of forgiveness. Understanding these obstacles is essential for overcoming them and moving towards a place of true forgiveness and compassion.
 

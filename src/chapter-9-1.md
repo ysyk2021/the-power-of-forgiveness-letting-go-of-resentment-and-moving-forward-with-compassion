@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-================================================================
 
 In this chapter, we will explore the importance of measuring success in the context of forgiveness and reconciliation. We will discuss the concept of Key Performance Indicators (KPIs) and how they can be used as valuable tools to evaluate progress, track growth, and ensure the effectiveness of our forgiveness journey.
 

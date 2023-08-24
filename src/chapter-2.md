@@ -1,5 +1,3 @@
-Chapter 2: Understanding Forgiveness
-====================================
 
 In this chapter, we will explore the definition of forgiveness, the benefits of forgiveness, and common myths about forgiveness.
 

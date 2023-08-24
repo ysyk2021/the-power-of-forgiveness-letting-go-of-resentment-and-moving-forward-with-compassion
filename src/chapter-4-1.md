@@ -1,5 +1,3 @@
-Acknowledging Hurt and Pain
-====================================
 
 In this chapter, we will explore the importance of acknowledging hurt and pain as a crucial step in the process of forgiveness. Recognizing and validating our own emotions and the pain caused by others is essential for healing, letting go of resentment, and moving forward with compassion. By understanding the significance of acknowledging hurt and pain, we can begin the journey towards forgiveness and emotional well-being.
 

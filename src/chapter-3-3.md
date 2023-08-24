@@ -1,5 +1,3 @@
-When Reconciliation is Appropriate
-===========================================
 
 Reconciliation is a complex and multifaceted process that involves rebuilding trust and restoring relationships. In this chapter, we will explore the circumstances in which reconciliation is appropriate and provide guidance on navigating this delicate journey.
 

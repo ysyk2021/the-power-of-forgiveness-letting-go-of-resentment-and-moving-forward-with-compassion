@@ -1,5 +1,3 @@
-Differences Between Forgiveness and Reconciliation
-===========================================================
 
 Forgiveness and reconciliation are often used interchangeably, but they represent distinct and separate processes. In this chapter, we will explore the differences between forgiveness and reconciliation, shedding light on their unique characteristics and implications.
 

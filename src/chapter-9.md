@@ -1,5 +1,3 @@
-Chapter 9: Measuring Success in Forgiveness
-===========================================
 
 Forgiveness is a complex process and measuring success can be challenging. In this chapter, we will explore practical guidance for measuring success in forgiveness.
 
