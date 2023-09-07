@@ -35,3 +35,4 @@
 - [Chapter 10: Case Studies of Successful Forgiveness](chapter-10.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
